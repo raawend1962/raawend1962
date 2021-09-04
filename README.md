@@ -2,7 +2,7 @@
 - 👀 5 Yildir Yazilim Ile ugrasiyorum
 - 📫 Bana Ulasabileceginiz platformlar
 
-- Discord : 'metewalker ✩#1962
+- Discord : metewalker#0001
 - Instagram : raawend1962
 - Twitter : MeteSimsek07
 
